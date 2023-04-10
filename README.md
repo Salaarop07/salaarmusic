@@ -28,9 +28,9 @@
 
 ## Telegram 🏪
 
-[![Telegram Group](https://graph.org/file/076156548b0422b220e58.mp4)](https://t.me/apne_duniya)
+[![Telegram Group](https://graph.org/file/d6c2a96729e384af81c53.jpg)](https://t.me/apne_duniya)
 
-[![Telegram Channel](https://https://graph.org/file/076156548b0422b220e58.mp4)](https://t.me/apne_duniya07)
+[![Telegram Channel](https://graph.org/file/d6c2a96729e384af81c53.jpg)](https://t.me/apne_duniya07)
 
 ## YouTube 📺
 
